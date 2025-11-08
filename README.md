@@ -1,14 +1,24 @@
-# Terjemahan Buku Shalat Lengkap
+# BUKU TERJEMAH AKHLAQ-AKHLAQ DALAM ISLAM
+
+Ditulis oleh Ali bin Emrullah dan Muhammed Hadimi
 
 Huseyin Hilmi Isik
 
-Percetakan: Ihlâs Gazetecilik A.Ş.
+Edisi Dua Belas
 
-Merkez Mah. Ihlas Plaza No: 11A / 41
+Hakikat Kitabevi
 
-34197 Yenibosna-ISTANBUL Tel: 0,212.4543000
+Darüşşefeka Cad. 53/A P.K.: 35
 
-ISBN: 975-92119-3-9
+34083 Fatih-IS TAN BUL/TURKEY
+
+Tel: 90.212.523 4556–532 5843 Fax: 90.212.523 3693
+
+http://www.hakikatkitabevi.com
+
+e-mail: info@hakikatkitabevi.com
+
+NOVEMBER-2016
 
 Sumber https://www.freebookscity.com/terjemahan-buku-shalat-lengkap-44580.html?language=ID
 
